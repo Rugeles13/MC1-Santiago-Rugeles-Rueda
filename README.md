@@ -1,1 +1,0 @@
-# Riuck-Matematicas
